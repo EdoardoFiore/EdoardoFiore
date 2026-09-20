@@ -1,5 +1,5 @@
 # 💫 About Me:
-Might not look like much on the surface.. but something it's going on underneath.<br><br>Working on self utilities<br>Developing skills in coding<br>Abusing vide coding
+Might not look like much on the surface.. but something it's going on underneath.<br><br>Working on self utilities<br>Developing skills in coding<br>Abusing vibe coding
 
 
 ## 🌐 Socials:
